@@ -1,1 +1,4 @@
 # La-dimensi-n-acumulativa-de-la-Reputaci-n-Online
+La Reputación Online se construye con cada una de las acciones que involucran a una marca. También influyen de forma considerable las decisiones de omisión, es decir, cuando se elige no participar de un espacio digital o ignorar los mensajes de terceros, entre otros casos.
+La Reputación Online se encuentra comprendida por la identidad que proyecta una marca y por la manera en que las personas perciben dicha imagen. Presenta una dimensión acumulativa debido a que es el resultado de cada una de las acciones que tienen lugar en el entorno digital. Las mismas se suman y no se pueden eliminar: el objetivo de la gestión consiste en direccionarlas hacia un lugar simbólico positivo.
+https://replatam.com/la-dimension-acumulativa-de-la-reputacion-online/
